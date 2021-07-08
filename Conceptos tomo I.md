@@ -1,3 +1,3 @@
-# CONCEPTOS DE NUBE <h1> 
+# CONCEPTOS DE NUBE 
 ## Hecho por Karen Benítez <h6>
 
